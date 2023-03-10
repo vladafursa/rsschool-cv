@@ -51,7 +51,7 @@ Currently studying(2022-now)
 
 ## Languages:
 
-* Russian - native.
-* Belarusian - native.
-* English - C1(IELTs 7.0).
-* Spanish - A1(currently working on it).
+* **Russian** - native.
+* **Belarusian** - native.
+* **English** - C1(IELTs 7.0).
+* **Spanish** - A1(currently working on it).
