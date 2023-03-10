@@ -7,7 +7,7 @@
 **[Linkedin](www.linkedin.com/in/vlada-fursa)**    
 **Phone:** +375 29 6597797  
 **Email:** fursa_vlada@mail.ru  
-**Telegram:**@VladaFursa  
+**Telegram:** @VladaFursa  
 
 ## About me:
 
